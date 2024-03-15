@@ -1,2 +1,1 @@
-# hello-word
-Questo è il primo progetto di esercitazione
+Ora mi sto allenando, per vedere cosa accadrà
