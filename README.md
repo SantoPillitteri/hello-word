@@ -1,1 +1,1 @@
-Ora mki sto allenando, per vedere cosa accadrà
+Ora mi sto allenando, per vedere cosa accadrà
